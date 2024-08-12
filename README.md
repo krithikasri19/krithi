@@ -1,3 +1,0 @@
-# krithi
-# krithi
-# krithi
